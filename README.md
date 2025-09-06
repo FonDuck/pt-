@@ -1,0 +1,2 @@
+# pt-
+主坑mcyt/南方公园◈prz公公偏好mutiny和pvp文明的螈鹦鹉 grox不吃任何/cb向all接受 glitch站bg不拆不逆 好感产antagonistduo/odysseyduo/honq/猫龟 evbo公公金花tabi然后gt乱炖 喜欢看havocduo/potatoduo/deathduo/justiceduo/empireduo/chaosduo/partykillers/kww/pmc/sharbu/bfb以上全cb前提 对趣屋和kazam无感 yhs相关我不站任何明确cp 内容有缩写没看懂可以问我本人喜欢吃的设定左右脑互博你不介意我成分就行✋
