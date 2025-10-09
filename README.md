@@ -1,4 +1,6 @@
 pt属性号c+h随扩
 主坑mcyt/南方公园
-◈prz公公偏好mutiny和pvp文明的螈鹦鹉 grox不吃任何/cb向all接受 glitch站bg不拆不逆 好感产taxduo/antagonistduo/odysseyduo/honq/猫龟 evbo公公金花tabi然后gt乱炖 喜欢看havocduo/potatoduo/deathduo/justiceduo/empireduo/chaosduo/partykillers/kww/pmc/tricksterduo/sharbu/bfb以上全cb前提 对趣屋和kazam无感 dsmp剧情全补完但浓度低 yhs相关我不站任何明确cp 内容有缩写没看懂可以问我本人喜欢吃的设定左右脑互博你不介意我成分就行✋
+◈帝国火top
+prz公grox单推不吃任何/cb向all接受 glitch站bg不逆 evbo公金花tabi/all官配不雷且99
+好感产antagonistduo/odysseyduo/honq/猫龟 然后gt乱炖havocduo/potatoduo/deathduo/justiceduo/chaosduo/partykillers/kww/pmc/tricksterduo/enchantmentduo/bfb以上全cb前提好感 对趣屋和kazam/mid相关一切无感 dsmp剧情全补完但浓度低 yhs相关我不站任何明确cp 内容有缩写没看懂可以问我本人喜欢吃的设定左右脑互博你不介意我成分就行✋
 南苑凯公凡公
